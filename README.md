@@ -1,4 +1,4 @@
-Hi, I’m @Daimon0663
+Hi, I’m Tijmen van Oers
 I’m interested in cybersecurity and robots
 Studying computer science at the VUB
 
